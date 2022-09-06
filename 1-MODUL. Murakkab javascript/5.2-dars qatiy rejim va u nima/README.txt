@@ -1,0 +1,1 @@
+Qatiy rejim bu bizani kodimiz eskirib qolmasligi uchun xizmat qiladi.
